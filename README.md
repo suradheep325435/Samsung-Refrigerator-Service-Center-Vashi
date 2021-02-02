@@ -1,0 +1,2 @@
+# Samsung-Refrigerator-Service-Center-Vashi
+A glass door is good to keeps the food items, when you keep the food in refrigerators you can see that what you kept in the refrigerator. So all people choose this type of refrigerator.  This glass is toughened glass door allows easy to clean. It contain door doors one is for main door and other is for freezer it contains 235 to 495 liters capacity. Refrigerator contains two doors one is for freezer and another is for sore the food. https://samsung-servicecenterinmumbai.com/samsung-refrigerator-service-center-vashi/
